@@ -1,1 +1,1 @@
-Nama Saya Raden Gilang Komara. Tulisan ini ditampilkan dari views
+Nama Saya Salman Alfarishi. Tulisan ini ditampilkan dari views
